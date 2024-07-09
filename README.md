@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-### for freelance work? do reach, [email](mailto:bushraabbas368@gmail.com?subject=[GitHub]%20Source%20Han%20Sans) me
+### for freelance work? do [email](mailto:bushraabbas368@gmail.com?subject=[GitHub]%20Source%20Han%20Sans) me
 
 #### 📊 this week I spent my time on:
 
